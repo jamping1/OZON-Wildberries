@@ -16,7 +16,7 @@
 - Оплачиваешь и получаешь сертификат мгновенно!
 
 - Не откладывай! Экономь прямо сейчас!
-➡️ ПЕРЕЙТИ В КАНАЛ ЗА ВЫГОДОЙ:
+➡️ ПЕРЕЙТИ В КАНАЛ ЗА ВЫГОДОЙ: ![Alt text](https://i.postimg.cc/V6Yszj4b/Screenshot-999999991.png)
 
 
 [![Donate](https://i.postimg.cc/8z1ZBcy6/CHHHH2.png)](https://t.me/DCB_Cashback90)
