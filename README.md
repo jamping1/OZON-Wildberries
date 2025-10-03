@@ -17,6 +17,6 @@
 
 - Не откладывай! Экономь прямо сейчас!
 ➡️ ПЕРЕЙТИ В КАНАЛ ЗА ВЫГОДОЙ:![Alt text](https://i.postimg.cc/j5pbLP46/stttttttttttttt-1.png)
-[![Donate](https://i.postimg.cc/8z1ZBcy6/CHHHH2.png)](https://t.me/DCB_Cashback90)
+
 
 [![Donate](https://i.postimg.cc/8z1ZBcy6/CHHHH2.png)](https://t.me/DCB_Cashback90)
